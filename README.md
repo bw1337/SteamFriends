@@ -22,3 +22,4 @@
 | ![](https://avatars.steamstatic.com/1fa48f3adeb9594213eb5579244b70f7430ff46e.jpg) | GRGA   | [76561198401166384](https://steamcommunity.com/profiles/76561198401166384/) | ✅           | 2025-12-12 13:40:49 |                |          |
 | ![](https://avatars.steamstatic.com/4abfb30e64b59b1082ea9eed13b7acbe1279bf5c.jpg) | 港猴你崛起吧 | [76561199070744330](https://steamcommunity.com/profiles/76561199070744330/) | ✅           | 2025-12-12 14:46:07 |                |          |
 | ![](https://avatars.steamstatic.com/2689f9a579ebf04ee670ad61d4ae3ee91daf2b96.jpg) | Kikoxo | [76561198860095506](https://steamcommunity.com/profiles/76561198860095506/) | ✅           | 2025-12-16 18:40:16 |                |          |
+| ![](https://avatars.steamstatic.com/653ad85f3b9e5784eb25b84b63c8bcd93ad5bc83.jpg) | Y1ky   | [76561199076257465](https://steamcommunity.com/profiles/76561199076257465/) | ✅           | 2025-12-17 05:51:45 |                |          |
